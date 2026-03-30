@@ -10,4 +10,4 @@ https://vkvideo.ru/video-198342309_456239074
 
 ## YouTube
 
-![Видео](https://youtu.be/dK6wgAixwhE)
+![Видео](https://youtu.be/P0YMLqTomnQ)
